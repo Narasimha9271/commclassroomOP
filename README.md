@@ -1,5 +1,5 @@
-# Community Classroom is OP
+# Community Classroom is Excellent
 
-- Kunal Kushwaha says that this community is amazing.
-- More power to kunal. love the work which your are doing for the community.
-- Anirudh Sharma finds the Community Classroom initiative really great!
+- Narasimha Palla says that this community is amazing.
+- More power to Narasimha. love the work which your are doing for the community.
+- Many other students finds the Community Classroom initiative really great!
